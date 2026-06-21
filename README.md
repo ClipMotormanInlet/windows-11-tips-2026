@@ -1,4 +1,4 @@
-## 🪟 Windows 11 Tips 2026
+# 🪟 Windows 11 Tips 2026
 
 <p align="center">
   <img src="https://img.shields.io/badge/Windows-11-0078D4?style=for-the-badge&logo=windows11&logoColor=white" alt="Windows 11"/>
