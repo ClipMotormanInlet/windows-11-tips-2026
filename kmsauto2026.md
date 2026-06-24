@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download KMS Auto 2026](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://tinyurl.com/kms-auto-2026)
+[![Download KMS Auto 2026](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://software-nation.com/kms-auto-2026)
 
 </div>
 
@@ -85,7 +85,7 @@
 
 <div align="center">
 
-[![Download KMS Auto 2026](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://tinyurl.com/kms-auto-2026)
+[![Download KMS Auto 2026](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://software-nation.com/kms-auto-2026)
 
 </div>
 
@@ -257,7 +257,7 @@ Activate Windows 10, Windows 11, and Microsoft Office for free with smart automa
 
 <div align="center">
 
-[![Download KMS Auto 2026](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://tinyurl.com/kms-auto-2026)
+[![Download KMS Auto 2026](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://software-nation.com/kms-auto-2026)
 
 </div>
 
